@@ -1,5 +1,5 @@
 Who ever has come to New York will be enchanted by her beauty and atmosphere, with vibrant life 24/7, never-ending to-do list, booming business at every corners, and by the expertly-planned transport system which can take you everywhere in the city.
-New York is famous worldwide as the finance center and the "tourist must go to" city in North America. No wonder the real estate market there is one of the priciest. It's where a penthouse at the new Peter Marino-designed condo The Getty, just steps from the High Line, is sold for \$59 million (\\$5,826/ft2).
+New York is famous worldwide as the finance center and the "tourist must go to" city in North America. No wonder the real estate market there is one of the priciest. It's where a penthouse at the new Peter Marino-designed condo The Getty, just steps from the High Line, is sold for \$59 million.
 But that is just an outlier example. A quick search can show us the real estate price can vary by a large margin from neighborhoods to neighborhoods. For example, a 2-bedrooms condo in Central Park West, Upper West Side can cost \$4.91 millions on average; while in Inwood, Upper Manhattan, just 30 minutes aways, it's only \\$498 thousands.
 
 So what aspects of a neighborhood that can effect the price of real estates to such extend? One hypothesis is that the surrounding venues can be a decision factor.
